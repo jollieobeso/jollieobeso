@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 🌱 I’m currently studying Information Technology at MATS College of Technology
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I love cheesy beef taco
